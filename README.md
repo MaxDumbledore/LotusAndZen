@@ -1,5 +1,7 @@
 # 莲花与禅
 
+![img](https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimage99.360doc.com%2FDownloadImg%2F2016%2F09%2F0407%2F79329126_2.jpg&refer=http%3A%2F%2Fimage99.360doc.com&app=2002&size=f9999,10000&q=a80&n=0&g=0n&fmt=auto?sec=1667739783&t=f5839bbb060f343db2134e2b51ee21bc)
+
 > 　　　　复次，舍利子，诸菩萨摩诃萨修行般若波罗蜜多，不见色若相应若不相应，不见受、想、行、识若相应若不相应；
 >
 > 　　　　不见眼处若相应若不相应，不见耳、鼻、舌、身、意处若相应若不相应；
@@ -68,4 +70,3 @@
 >
 > 　　​																																		——《大般若经》初分相应品第三之二
 
-![img](https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fimage99.360doc.com%2FDownloadImg%2F2016%2F09%2F0407%2F79329126_2.jpg&refer=http%3A%2F%2Fimage99.360doc.com&app=2002&size=f9999,10000&q=a80&n=0&g=0n&fmt=auto?sec=1667739783&t=f5839bbb060f343db2134e2b51ee21bc)
